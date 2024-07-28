@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @juwiijones984
+- 👀 I’m interested in app development, particularly in creating solutions to social challenges like poverty through innovative technology.
+- 🌱 I’m currently learning Information Communication Technology (Application Development) at the University of Mpumalanga. I’m in my final year, focusing on developing practical and impactful applications.
+- 💞️ I’m looking to collaborate on projects related to app development, especially those that aim to make a positive social impact. I'm also open to opportunities in the fields of electrical engineering and sales.
+- 📫 How to reach me: You can contact me at 066 370 6956 or via email at 222379898@ump.ac.za.
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I have experience in various fields, from electrical engineering to sales, which has given me a well-rounded skill set and a unique perspective on problem-solving.
